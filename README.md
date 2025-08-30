@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Harforlarbiey
+
 - 👀 I’m interested in ...coin
 - 🌱 I’m currently learning ...how to earn 
 - 💞️ I’m looking to collaborate on ...who which to
